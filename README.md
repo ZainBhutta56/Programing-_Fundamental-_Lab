@@ -1,2 +1,2 @@
 # Programing-_Fundamental-_Lab
-PF LAB... Bscs 1st __Section.. D___Roll No.( 33)__by Muhammad Zain Ul Abedein
+PF LAB... Bscs 1st __Section.. D___Roll No.(33)__by Muhammad Zain Ul Abedein
